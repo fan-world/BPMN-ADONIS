@@ -1,3 +1,12 @@
+Zostałem zablokowany na platformie. Oto moje dane logowania, dzięki czemu możesz zobaczyć pełny wynik i go edytować. Oto moje konto, zaloguj się za jego pomocą.
+https://adonis-ce.boc-cloud.com/cp/#0
+E-mail: yarik.kom2011@gmail.com
+Hasło: "P5b,P6r<G0m*"
+
+Jeśli współpraca Ci pomogła, nie otrzymam pieniędzy z Twojego zamówienia; platforma zwróci Ci je. Możesz przekazać napiwek.
+
+4874 0700 5198 4241
+
 # 📄 Dokumentacja projektu BPMN
 
 ## 1. Cel projektu
